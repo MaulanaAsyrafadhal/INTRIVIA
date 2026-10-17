@@ -10,3 +10,6 @@ Kesan pesan saya selama acara INTRIVIA ini sangat seru dan saya mendapatkan bany
 
 ## Kesan Pesan Cluster 4 Sejauh Ini 
 Untuk cluser 4 saya sangat bangga dan sangat senang berada di cluster 4 karena saya memiliki kakak fasil yang sangat baik, dapat menerima kita meskipun kita berbeda - beda dan juga mereka membantu kita jika kita mengalami kesulitan dalam acara INTRIVIA dan juga kehidupan dan permasalahan dalam kampus, dan juga di cluster 4 ini saya mendapatkan teman yang seru dan dapat menerima saya apa adanya dan mereka sangat friendly yang dapat membuat saya menikmati acara INTRVIA
+
+## Harapan Kuliah 
+Harapan saya dalam kuliah ini yang pertama dan yang pasti saya ingin lulus cepat dalam keadaan ipk yang bagus dan saya juga berharap dalam berkuliah ini saya mendapatkan banyak sekali ilmu dari hardskill dan juga softskill yang dapat membantu saya menjadi pribadi yang lebih baik dari yang sebelumnya dan juga saya ingin mendapatkan relasi yang dapat membantu saya kedepannya
